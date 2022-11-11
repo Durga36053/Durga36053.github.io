@@ -1,2 +1,2 @@
-# Durga36053.github.io
+# DurgaPrasadReddyK.github.io
 Durga's Website
